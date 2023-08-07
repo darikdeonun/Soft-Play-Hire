@@ -1,1 +1,2 @@
 # Soft-Play-Hire
+Soft play is an activity for children that involves playing in a specially designed area with soft surfaces and equipment. There's plenty to keep the kids busy including soft play and arts and crafts. The [Soft Play Hire](https://bambolinissoftplay.com.au/), foam-based structures allow children to crawl, climb, and slide without the risk of injury that might be present in a traditional outdoor play area. This helps to build strength, coordination, and balance, and can even improve gross motor skills.
